@@ -1,0 +1,1 @@
+https://kuruji-kutofu.github.io/rsschool-cv/cv
