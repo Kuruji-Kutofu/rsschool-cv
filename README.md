@@ -1,1 +1,1 @@
-https://kuruji-kutofu.github.io/rsschool-cv/cv
+https://kuruji-kutofu.github.io/rsschool-cv/
